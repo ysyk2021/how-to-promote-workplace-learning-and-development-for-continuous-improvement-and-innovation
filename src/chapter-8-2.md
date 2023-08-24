@@ -1,5 +1,3 @@
-Strategies for Using Workplace Learning and Development to Become a Better Leader
-======================================================================================================================================================================
 
 Leadership development is critical to promoting continuous improvement and innovation in the workplace. In this chapter, we will explore strategies for using workplace learning and development to become a better leader.
 

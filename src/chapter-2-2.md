@@ -1,5 +1,3 @@
-The impact of workplace learning and development on personal and professional development
-======================================================================================================================================================
 
 Workplace learning and development is critical for individuals' personal and professional growth. In this chapter, we will explore the impact of workplace learning and development on personal and professional development.
 

@@ -1,5 +1,3 @@
-Using career planning and coaching techniques
-=======================================================================================
 
 Career development is an essential component of workplace learning and development. Providing employees with opportunities for career growth and development can improve their job satisfaction, engagement, and performance. In this chapter, we will explore how to support career development using career planning and coaching techniques.
 

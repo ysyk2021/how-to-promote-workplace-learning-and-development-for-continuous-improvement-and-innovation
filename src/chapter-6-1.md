@@ -1,5 +1,3 @@
-The Role of Career Development in Workplace Learning
-==============================================================================================
 
 Supporting career development is critical to promoting workplace learning and continuous improvement. In this chapter, we will explore the importance of career development in workplace learning, the benefits of supporting career development, and strategies for providing career development opportunities.
 

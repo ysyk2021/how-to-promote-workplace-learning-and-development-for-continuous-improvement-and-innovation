@@ -1,5 +1,3 @@
-Chapter 5: Encouraging Knowledge Sharing and Collaboration
-==========================================================
 
 Knowledge sharing and collaboration are critical components of workplace learning and development. In this chapter, we will explore the importance of knowledge sharing and collaboration in workplace learning, strategies for encouraging knowledge sharing and collaboration, and using social learning and mentoring programs.
 

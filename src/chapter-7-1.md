@@ -1,5 +1,3 @@
-Methods for measuring learning and development success
-=============================================================================================================
 
 Measuring the success of workplace learning and development programs is essential to ensure continuous improvement and innovation. In this chapter, we will explore methods for measuring learning and development success.
 

@@ -1,5 +1,3 @@
-Strategies for Creating a Culture of Learning
-========================================================================================
 
 In today's fast-paced business environment, organizations need to continuously learn and adapt to remain competitive. Fostering a culture of learning is essential for promoting workplace learning and development. In this chapter, we will explore strategies for creating a culture of learning within the workplace.
 

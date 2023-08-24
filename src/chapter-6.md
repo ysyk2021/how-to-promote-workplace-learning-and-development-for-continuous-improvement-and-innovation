@@ -1,5 +1,3 @@
-Chapter 6: Supporting Career Development
-========================================
 
 In today's rapidly changing workplace, employers must prioritize the professional development of their employees to remain competitive. One key aspect of learning and development is supporting career development. This chapter will explore the role of career development in workplace learning, strategies for supporting career development, and using career planning and coaching techniques.
 

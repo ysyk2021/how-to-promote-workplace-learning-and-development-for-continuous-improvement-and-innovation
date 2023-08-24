@@ -1,5 +1,3 @@
-Using E-Learning and On-the-Job Training Methods
-=============================================================================================================
 
 Providing training and development opportunities is critical to promoting continuous improvement and innovation in the workplace. In this chapter, we will explore two common methods of training and development: e-learning and on-the-job training.
 

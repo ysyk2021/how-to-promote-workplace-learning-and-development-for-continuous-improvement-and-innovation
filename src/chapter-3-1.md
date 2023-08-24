@@ -1,5 +1,3 @@
-The importance of creating a culture of learning in the workplace
-============================================================================================================
 
 Creating a culture of learning is essential for promoting workplace learning and development. A culture of learning involves establishing an environment that values and supports ongoing learning and development. In this chapter, we will explore the importance of creating a culture of learning in the workplace.
 

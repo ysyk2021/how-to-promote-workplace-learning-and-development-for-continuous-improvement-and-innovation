@@ -1,5 +1,3 @@
-Using Social Learning and Mentoring Programs
-========================================================================================================
 
 In today's fast-paced world, organizations need to keep up with the quick changes in technology and business practices to remain competitive. One of the most effective ways to achieve this is by fostering a culture of continuous learning and development within the workplace.
 

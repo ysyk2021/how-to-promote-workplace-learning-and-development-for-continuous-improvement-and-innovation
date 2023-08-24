@@ -1,5 +1,3 @@
-Adjusting Learning and Development Programs Based on Feedback
-====================================================================================================================
 
 Measuring the success of workplace learning and development programs is critical to promoting continuous improvement and innovation. In this chapter, we will explore strategies for measuring the success of learning and development programs and adjusting them based on feedback.
 

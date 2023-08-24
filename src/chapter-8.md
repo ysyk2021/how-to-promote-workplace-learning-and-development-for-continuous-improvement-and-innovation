@@ -1,5 +1,3 @@
-Chapter 8: Applying Workplace Learning and Development to Organizational Leadership
-===================================================================================
 
 Workplace learning and development have significant benefits for both employees and organizations. However, these initiatives can also be applied to organizational leadership to improve leadership effectiveness and drive innovation. In this chapter, we will explore the benefits of applying workplace learning and development to organizational leadership, strategies for using workplace learning and development to become a better leader, and leading with a growth mindset and fostering a learning culture.
 

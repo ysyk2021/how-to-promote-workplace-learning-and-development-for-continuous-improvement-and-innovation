@@ -1,5 +1,3 @@
-Encouraging Resilience and Adaptability
-===============================================================================================================
 
 In today's rapidly changing work environment, resilience and adaptability are critical skills for employees. In this chapter, we will explore the importance of resilience and adaptability in workplace learning and development, common challenges to developing these skills, and strategies for encouraging resilience and adaptability.
 

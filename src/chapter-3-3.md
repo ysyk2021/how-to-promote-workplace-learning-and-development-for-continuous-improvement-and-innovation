@@ -1,5 +1,3 @@
-Encouraging Curiosity and Experimentation
-====================================================================================
 
 In today's rapidly changing business environment, organizations need to continuously learn and adapt to stay competitive. To achieve this, it is crucial to foster a culture of learning within the workplace. This chapter will explore how organizations can create a culture of learning by encouraging curiosity and experimentation.
 

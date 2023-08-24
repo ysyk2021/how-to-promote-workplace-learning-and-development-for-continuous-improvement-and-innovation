@@ -1,5 +1,3 @@
-Chapter 7: Measuring Learning and Development Success
-=====================================================
 
 Effective workplace learning and development programs require a continuous cycle of improvement, which includes measuring the success of the programs. In this chapter, we will explore methods for measuring learning and development success, analyzing personal and team performance data, and adjusting learning and development programs based on feedback.
 

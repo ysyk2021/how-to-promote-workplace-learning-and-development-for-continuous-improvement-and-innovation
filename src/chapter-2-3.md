@@ -1,5 +1,3 @@
-Strategies for promoting workplace learning and development
-========================================================================================================================
 
 Promoting workplace learning and development is essential for improving employee performance, increasing engagement, and driving innovation. In this chapter, we will explore strategies for promoting workplace learning and development.
 

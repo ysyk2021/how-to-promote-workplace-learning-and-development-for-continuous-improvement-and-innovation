@@ -1,5 +1,3 @@
-Leading with a Growth Mindset and Fostering a Learning Culture
-===================================================================================================================================================
 
 Effective organizational leadership requires a growth mindset, a commitment to continuous learning and development, and the ability to foster a culture of learning. In this chapter, we will explore how applying workplace learning and development to organizational leadership can promote continuous improvement and innovation. We will also discuss leading with a growth mindset and fostering a learning culture.
 

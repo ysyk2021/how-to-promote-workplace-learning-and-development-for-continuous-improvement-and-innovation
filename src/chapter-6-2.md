@@ -1,5 +1,3 @@
-Strategies for Supporting Career Development
-======================================================================================
 
 Supporting career development is critical to promoting workplace learning and continuous improvement. In this chapter, we will explore strategies for supporting career development.
 

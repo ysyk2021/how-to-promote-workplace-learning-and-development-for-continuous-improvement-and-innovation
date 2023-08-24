@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Learning
-=========================================
 
 Creating a culture of learning in the workplace is essential for promoting continuous improvement and innovation. In this chapter, we will explore the importance of creating a culture of learning, strategies for creating a culture of learning, and encouraging curiosity and experimentation.
 
